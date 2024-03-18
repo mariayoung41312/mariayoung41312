@@ -1,5 +1,5 @@
 ### Hi there 👋
-
+- **Discord**: [alindabalanskaja](https://discord.com/users/alindabalanskaja)
 <!--
 **mariayoung41312/mariayoung41312** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
